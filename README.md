@@ -26,7 +26,7 @@
 
 メールアドレス：inatatsu.0906@gmail.com
 
-Twitter : @_inatatsu_csg_
+Twitter : @\_inatatsu\_csg\_
 
 ## 策定日
 
